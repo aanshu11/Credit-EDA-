@@ -1,1 +1,1 @@
-# Credit-EDA-
+# Credit-EDA-CASE STUDY 
